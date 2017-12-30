@@ -21,4 +21,17 @@ Subordination is a natural process which results in the establishment of a relat
 
 ### SUBORDINATION EXERCISES
 We will teach you how to administer them correctly and will practice these exercises:
-1. Elevation or Standing Over
+
+
+#### Elevation or Standing Over
+Puppy is either held out in front facing you or you stand over, holding them.
+
+
+#### Inversion
+Puppy is on their back, belly up, with head towards you.
+
+
+#### Subordinate/Settle position
+Puppy should be relaxed, not pawing, struggling, mouthing, or growling.
+
+Use verbal correction of a guttural, growling ERRHH and a scruff shake to correct, then immediately praise 
