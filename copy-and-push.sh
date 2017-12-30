@@ -2,6 +2,10 @@
 
 # This small script copies from the google drive folder to the repo folder and then pushes to the github repo /cconmy/cckc
 
+# Removes the older files
+rm -r /Users/chrisconmy/Dropbox\ \(Videxio\)/Conmy\ Share/CCKC/MarkDown-Control-Copies/*.*
+
+
 # Copy and overwrite from google drive.
 cp -f -r /Volumes/GoogleDrive/My\ Drive/CCKC\ obedience\ handouts/MarkDown-Control-Copies/ /Users/chrisconmy/Dropbox\ \(Videxio\)/Conmy\ Share/CCKC/MarkDown-Control-Copies/
 
