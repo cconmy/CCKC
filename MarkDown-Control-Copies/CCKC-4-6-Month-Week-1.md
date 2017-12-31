@@ -1,4 +1,4 @@
-# Cyclone County Kennel Club "4-6 Month" Obedience Class
+# Cyclone County Kennel Club of Ames, Inc. "4-6 Month" Obedience Class
 
 
 ## First Training Lesson
