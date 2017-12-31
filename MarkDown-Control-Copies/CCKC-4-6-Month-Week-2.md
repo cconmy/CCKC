@@ -49,4 +49,12 @@ Your dog is a social, pack dwelling animal. Your household is their pack. All pa
 
 Pack and herd dwelling animals maintain status in number of ways. One way is control the use of space by other pack members. This week, we are going to start controlling space by teaching your dog to yield to you on command and by your body position. Teaching this also has the added value of allowing you to walk into your home with both arms loaded with packages without having to avoid your dog. We will not use food treats in the teaching of this exercise.
 
-Have your dog 
+Have your dog standing in front of you on a loose leash. (The leash is for control only. You will not use the leash to move your dog's body.) Lean into your dog. Leaning your torso toward the dog seems to be recognized by them as a status related gesture. Say the word, "Move", and move toward them with tiny, shuffling steps. Keep moving in your intended direction. **Do not** step around them as this will be status on them. As soon as they move, tell them "Good!". Keep moving until they move out of your way. Do this several times every day.
+
+In your house, you can practice this with the leash off. Whenever your dog gets in your way, them them to move and shuffle through them. Plan your routes around the house through your dog. If they are lying in your path, do not walk around them. Instead, make them move out of your way.
+
+The key to having your dog yield to you is your tiny, shuffling, straight ahead steps. Do not kick your dog or bump them with your knees.
+
+A word of WARNING. Do not attempt to practice having your dog yield to you if they have bitten or seriously threatened you. Dogs only bite members of their family to whom they feel dominant (that's why so many children are bitten by their own dogs!!), or when there are serious dominance related, but unresolved questions. If your dog has bitten or seriously threatened a family member, please let the instructor know so they can give extra help to put the situation right.
+
+*(A very practical use we have found for yielding is that it helps prevent jumping up! If every time the dog starts to jump up, the person shuffles forward, saying "Move", the dog very quickly stops jumping up. It is hard to get set to jump up if they have to backpedal to get out of the way)*
