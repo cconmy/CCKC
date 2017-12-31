@@ -6,8 +6,11 @@
 
 ### SIT-STAY
 With the dog near you, place your left hand (flat out and palm down) on the dog's hips. Pull up on the collar with your right hand and push down on the hips with your left hand AS you say "SIT".
+
 PRAISE your dog as soon as he or she is in the sit position.
+
 Alternative: Some dogs resist a gentle push or "tap reminder", so sometimes you must "Cup" them into a sit by manually tucking their rear under them.
+
 With your dog sitting in heel position, bring the palm of your hand flat in front of your dog's face while saying "STAY". Count to 5 - DO NOT allow your puppy to leave. Correct with a sharp "NO" and the leash. After you reach 5, release your puppy from the STAY and PRAISE! Gradually increase the length of the stay until he or she can sit for 30 seconds without a correction.
 
 
@@ -50,11 +53,17 @@ You can teach the controlled walking exercise frequently during the week, but re
 
 ### ALTERNATIVE WALKING METHOD
 In order for your teaching relationship with your dog to be a happy one, it's important for your dog to like his leash. Very young, timid, or sensitive dogs or dogs who have no experience with the leash need to be introduced to it gradually.
+
 If your puppy is not used to the leash yet, ask your instructor about this. Getting used to the leash slowly, by first dragging it through the house, then with you holding the end and following (not restraining), and using "happy talk" all the while. Your instructor can also describe how to "Chew-Proof" your leash by using a product such as Bitter Apple or a menthol-based ointment. It may be necessary to sensitize your dog to a foul taste in order to teach them not to chew a treated leash. Ask your instructors how to accomplish this.
+
 DO NOT pop or tug on the leash until your puppy is completely relaxed on the leash and is actively pulling against the restraint of the leash whenever you go for a walk in any location. Never, under any circumstances, pull or drag your puppy against his or her will. If your pup doesn't want to move on his or her own, simply pick him or her up and carry your puppy.
+
 Once your puppy is actively pulling on the leash, you can begin to encourage him or her to walk with you. Holding the leash as instructed in the "controlled Walking" section, kneel down and coax your puppy to you with a happy, enthusiastic voice. As soon as he arrives, reward him or her with a treat, more praise, and plenty of petting. If, at any time during your teaching sessions, your pup shows signs of fearful reluctance, immediately drop down to his or her level and "talk happy" to encourage your pup towards you.
+
 As your puppy learns to follow you, gradually increase the distance that you ask him or her to travel before being rewarded. Begin to increase the distance by getting up and backing away, praising, as he or she comes toward you after you have dropped down.
+
 It is imperative that all teaching sessions be *light-hearted, happy, and brief.* Don't be serious or stern in your teaching, or you may destroy your puppy's enjoyment of working with you and damage your relationship in general.
+
 Once your puppy has overcome his timidity and/or reluctance, you may use the complete "Controlled Walking" procedure. Be very careful with the intensity of your leash snap or pop, as over-correction can cause your puppy to stop trusting you. Sensitive or submissive-type dogs should be trained with a light hand on the leash and extensive verbal praise. If, at any time, your puppy becomes momentarily reluctant or fearful, revert to the "Alternative Procedure" until your puppy's attitude is confident and willing.
 
 

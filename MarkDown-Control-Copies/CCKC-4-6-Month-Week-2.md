@@ -19,6 +19,7 @@ While heeling your dog at a normal pace, look behind you (to make sure no one or
 
 ### SIT-STAY WITH DISTRACTIONS
 With your dog in heel position, we will gradually begin adding distractions during the SIT-STAY.
+
 This may include obstacles, noises, other people, and dogs in the building.
 
 
@@ -43,6 +44,9 @@ Your instructor will discuss Spaying (for females) and Neutering (for males) and
 
 ### Yielding
 To train and then live with your dog, there are two thing you need to get from them. One is their love. That's easy - dogs give it freely. The second is their respect. Yielding, because it stimulates precisely one phase of the dog's natural social behavior, gets their respect.
+
 Your dog is a social, pack dwelling animal. Your household is their pack. All pack or herd dwelling animals thrive best within a relatively stable hierarchy of status with some members being more dominant and other assuming a submissive role. Your dog wants to gain as much status within the pack as they possibly can for the simple reason that status bestows "perks". Status within the pack is not achieved by aggression, but by submission, with the lower ranking animal yielding to the higher ranking animal's ritualistic display of authority. Your dog will be a much better pet, as well as a safer pet, if you will do a number of things to keep them from assuming increasingly higher rungs on the dominance ladder.
+
 Pack and herd dwelling animals maintain status in number of ways. One way is control the use of space by other pack members. This week, we are going to start controlling space by teaching your dog to yield to you on command and by your body position. Teaching this also has the added value of allowing you to walk into your home with both arms loaded with packages without having to avoid your dog. We will not use food treats in the teaching of this exercise.
+
 Have your dog 
